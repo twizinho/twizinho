@@ -1,10 +1,10 @@
 # helo!
-my name is twizinho.
+my name's Twiz.
 
-- Friday Night Funkin' chart maker
-- asexual [he / him]
+- Friday Night Funkin' chart maker and beginner VA [https://linktr.ee/twizinho] 
+- asexual [he / him - ISFP]
+- 17 year old from brazil
 - cappuccino enjoyer
-- 16 yr old from brazil
 
 ## links
 [linktree](https://linktr.ee/twizinho)
