@@ -1,5 +1,5 @@
 # main introduction
-17 year old who makes FNF charts for a living, lmao.
+18 year old who makes FNF charts for a living, lmao.
 I only knows how to mess with [Psych Engine](https://github.com/ShadowMario/FNF-PsychEngine)'s Lua, and trust me, I hate myself for this, plus I am a big cookie enjoyer so if you leave your windows open at night, **beware**.
 
 - asexual [he / him - ISFP]
