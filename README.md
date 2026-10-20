@@ -6,4 +6,4 @@
 ✿ video editing knowledge
 ✿ ADHD + APD
 
-if you need me to contact me to discuss any important stuff, you can either contact me by my social medias or sending an e-mail, both is okay to use, but if you're just an average viewer, then I hope you have an amazing day and enjoy my videos! :]
+if you need me to contact me to discuss any important stuff, you can either contact me by my social medias or sending an e-mail, both is okay to use! :]
